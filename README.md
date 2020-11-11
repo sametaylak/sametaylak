@@ -1,4 +1,4 @@
-### Hi there 👋
+### Follow the white rabbit 🐇
 
 <!--
 **sametaylak/sametaylak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
