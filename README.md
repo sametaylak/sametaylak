@@ -1,4 +1,4 @@
-### The bells are very loud today 🔔
+### The bells are loud today 🔔
 <!--
 **sametaylak/sametaylak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
